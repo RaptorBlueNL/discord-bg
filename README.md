@@ -22,7 +22,7 @@ The time you enjoy wasting is not wasted time. – Bertrand Russell
 
 ‘’I’ve got a jar of dirt!’’ Jack Sparrow Pirates Of The Caribbean
 
-‘’You know my methods, Watson’’ – Sherlock Holmes Sherlock Holmes
+‘’You know my methods, Watson’’ – Sherlock Holmes
 
 ‘’Life is cruel, why should the afterlife be any different…’’ – Davy Jones Pirates Of The Caribbean
 
